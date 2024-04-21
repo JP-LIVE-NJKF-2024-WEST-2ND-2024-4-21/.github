@@ -1,4 +1,20 @@
 NJKF拳之会主催興行～ NJKF2024 west 2nd
+
+[🔴✅➡️LIVE➡️ NJKF 2024 WEST 2ND 2024ライブ](https://worldsportshd.com/jp-boxing/)
+-
+
+[🔴✅➡️LIVE➡️ NJKF 2024 WEST 2ND 2024ライブ](https://worldsportshd.com/jp-boxing/)
+
+-
+
+[🔴✅➡️LIVE➡️ NJKF 2024 WEST 2ND 2024ライブ](https://worldsportshd.com/jp-boxing/)
+-
+
+
+
+
+
+
 2024/03/05 — NJKF拳之会主催興行～ NJKF2024 west 2nd～のチケット情報・予約・購入はこちらから|2024年4月21日(日)：岡山県 岡山コンベーションセンター：
 ニュージャパンキックボクシング連盟
 3 時間後 — 2024年4月21日（日） 開場 13:00 / 開始 13:30 会場 岡山コンベンションセンター岡山県岡山市北区駅元町14番1号. 〈主催〉
